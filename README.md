@@ -5,7 +5,7 @@ Szukasz <a href="https://dzwonki.org/">dzwonki na telefon za darmo?</a> Odwiedź
 🔊 Kategorie: muzyka, śmieszne, klasyczne, SMS
 📥 Szybkie i darmowe pobieranie bez ograniczeń
 ✅ Bez reklam i ukrytych kosztów
-## ak pobrać dzwonek na telefon?
+## Jak pobrać dzwonek na telefon?
 Wejdź na Dzwonki.org
 Wybierz swój ulubiony dźwięk
 Kliknij „Pobierz” i ustaw jako dzwonek!
